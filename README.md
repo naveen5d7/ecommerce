@@ -9,7 +9,7 @@ Become a seller and add products, monitor sales, and gather customer feedback.
 
 
 <br><br>
-[LinkedIn](www.linkedin.com/in/penumala-naveen-073a8a244)
+[LinkedIn](https://www.linkedin.com/in/penumala-naveen-073a8a244/)
 
 # About
 
